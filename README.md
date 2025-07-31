@@ -17,7 +17,7 @@ Experience:
 Contact
 Feel free to reach out to me:
 
-  Email: [vasanthsparrow19@gmail.com]
+  Email: [vasanth59202@gmail.com]
 LinkedIn: [https://www.linkedin.com/in/v-vasanth-288a53305?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
 GitHub: [https://github.com/Vasanth775]
 Thank you for visiting my portfolio!
